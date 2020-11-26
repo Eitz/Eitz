@@ -1,2 +1,3 @@
-!["The Acropolis at Athens" by Leo von Klenze](https://zonalibreradio1.files.wordpress.com/2017/08/la_ciudad_de_la_diosa_atenea_2000x1394.jpg)
-*- "The Acropolis at Athens" by Leo von Klenze*
+<img src="https://i.redd.it/ot2jf9vsjtqz.jpg" />
+
+*- 'The Prologue and the Promise' Robert McCall, 1982*
